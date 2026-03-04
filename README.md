@@ -13,4 +13,4 @@
     🔴 Status: Discontinued
    
 ## 💬 Contact me
-Telegram: https://t.me/Bc_404
+Telegram: bc@404bc.cc
